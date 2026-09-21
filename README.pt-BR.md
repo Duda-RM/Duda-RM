@@ -118,7 +118,8 @@ Também estou desenvolvendo uma linha de pesquisa voltada ao uso de **Inteligên
 
 ## Contato
 
-[LinkedIn](www.linkedin.com/in/maria-eduarda-rodrigues-morais)
+[LinkedIn]([LinkedIn](https://www.linkedin.com/in/maria-eduarda-rodrigues-morais))
+
 
 ---
 
