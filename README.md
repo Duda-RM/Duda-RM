@@ -118,7 +118,7 @@ I am also developing a research line focused on the use of **Artificial Intellig
 
 ## Let's connect
 
-[LinkedIn](www.linkedin.com/in/maria-eduarda-rodrigues-morais)
+[LinkedIn](https://www.linkedin.com/in/maria-eduarda-rodrigues-morais)
 
 ---
 
